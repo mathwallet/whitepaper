@@ -4,7 +4,7 @@
 
 # MATH Whitepaper
 
-[https://drive.google.com/file/d/1PM5yMIiWOTz0GzdzGUXSwYtdUf_eVtvk/view?usp=sharing](https://drive.google.com/file/d/1PM5yMIiWOTz0GzdzGUXSwYtdUf_eVtvk/view?usp=sharing)
+[https://drive.google.com/file/d/1DtXgQGOkhwoTCWy_zscLPc9V-e-w5VmI/view?usp=sharing](https://drive.google.com/file/d/1DtXgQGOkhwoTCWy_zscLPc9V-e-w5VmI/view?usp=sharing)
 
 # MATH Token Introduction
 
